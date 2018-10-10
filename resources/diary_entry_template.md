@@ -1,8 +1,7 @@
-## Day [ DAY NUMBER HERE ]
+## Day 9
 
 Dear Diary,
 
-[ JOURNAL ENTRY HERE... ]
+I realized that I am experiencing a gender switch today. I guess I was a dude for the first few days; I'm losing my male supermacy and I'm freaking out.
 
-_written by: [ YOUR NAME HERE ]_
-___
+_written by: Jessie
